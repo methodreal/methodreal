@@ -4,3 +4,5 @@ gift me spokeishere skin on ponytown i demand. you dont have a choice do it now
 
 
 i follow back if asked
+
+professionally diagnosed with bpd⚠️⚠️⚠️⚠️🪧🪧🪧🪧🪧
