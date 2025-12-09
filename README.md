@@ -1,4 +1,4 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=perisicnikola37)I MISS HAVOC DUO I MISS HAVOC DUO I MISS HAVOC DUO
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=methodreal)brand new counter OMG
 
 gift me spokeishere skin on ponytown i demand. you dont have a choice do it now
 
