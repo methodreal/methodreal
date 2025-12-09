@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=your-github-username&color=grey) wtf⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀I MISS HAVOC DUO I MISS HAVOC DUO I MISS HAVOC DUO
+I MISS HAVOC DUO I MISS HAVOC DUO I MISS HAVOC DUO
 
 gift me spokeishere skin on ponytown i demand. you dont have a choice do it now
 
