@@ -6,6 +6,8 @@ i follow back if asked
 
 professionally diagnosed with bpd⚠️⚠️⚠️⚠️🪧🪧🪧🪧🪧
 
+𝓱𝓸𝓷𝓸𝓻𝓪𝓫𝓵𝓮 𝓶𝓮𝓷𝓽𝓲𝓸𝓷 𝓻𝓮𝓷𝓽𝓻𝔂 https://rentry.co/unrealduo
+
 <img width="343" height="288" alt="ocv642" src="https://github.com/user-attachments/assets/a8e4d3c9-41ce-49b8-8894-9c7cb140a437" />
 
 
