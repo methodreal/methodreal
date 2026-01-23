@@ -6,6 +6,7 @@ bpd, caution isnt needed i aint gon explode on a random chungy ❤️ i love int
 
 
 
-https://github.com/user-attachments/assets/a3724d71-e152-4ac3-893c-412d5057bfa3
+https://github.com/user-attachments/assets/5d092ce3-53ab-4065-9916-1660c981f0a9
+
 
 
