@@ -1,4 +1,4 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=methodreal&color=red)
+![counter](https://komarev.com/ghpvc/?username=methodreal&color=red)
 
 bpd, caution isnt needed i aint gon explode on a random chungy ❤️ i love interaction hmu anytime
  
