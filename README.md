@@ -1,8 +1,16 @@
-![counter](https://komarev.com/ghpvc/?username=methodreal&color=red)
-I HATE YOU ALL
+![counter](https://komarev.com/ghpvc/?username=methodreal&color=orange)
+name: method boreal
 
+age: not telling
 
-https://github.com/user-attachments/assets/5d092ce3-53ab-4065-9916-1660c981f0a9
+gender: not telling
 
+pronouns: not telling
 
+interests: not telling
 
+status: not telling
+
+I love: @supragcs @2meowkit @harouyama
+
+I hate: @germanstare @havocduo @zayninenine
