@@ -1,4 +1,4 @@
-![counter](https://komarev.com/ghpvc/?username=methodreal&color=orange)
+
 name: method boreal
 
 age: not telling
@@ -14,3 +14,5 @@ status: not telling
 I love: @supragcs @2meowkit @harouyama
 
 I hate: @germanstare @havocduo @zayninenine
+
+![counter](https://komarev.com/ghpvc/?username=methodreal&color=orange)
