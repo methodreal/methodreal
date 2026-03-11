@@ -15,4 +15,6 @@ I love: @supragcs @2meowkit @harouyama
 
 I hate: @germanstare @havocduo @zayninenine
 
-![counter](https://komarev.com/ghpvc/?username=methodreal&color=orange)
+![counter](https://komarev.com/ghpvc/?username=methodreal&color=blue)
+
+![](https://files.catbox.moe/dedvj0.png)
