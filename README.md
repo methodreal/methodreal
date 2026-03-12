@@ -18,3 +18,4 @@ I hate: @germanstare @havocduo @zayninenine
 ![counter](https://komarev.com/ghpvc/?username=methodreal&color=blue)
 
 ![](https://files.catbox.moe/dedvj0.png)
+![](https://files.catbox.moe/brtvq7.png)
