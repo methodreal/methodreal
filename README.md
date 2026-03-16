@@ -15,6 +15,8 @@ I love: @supragcs @2meowkit @harouyama
 
 I hate: @germanstare @havocduo @zayninenine
 
+Credits for the yt video xal He made it when he was 6.
+
 ![counter](https://komarev.com/ghpvc/?username=methodreal&color=blue)
 
 ![](https://files.catbox.moe/dedvj0.png)
