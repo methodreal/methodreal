@@ -17,7 +17,7 @@ I hate: @germanstare @havocduo @zayninenine
 
 Credits for the yt video xal He made it when he was 6,
 
-![counter](https://komarev.com/ghpvc/?username=methodreal&color=blue)
+![counter](https://komarev.com/ghpvc/?username=methodreal&color=red)
 
 ![](https://files.catbox.moe/2uinem.png)
 ![](https://files.catbox.moe/zzln9o.png)
