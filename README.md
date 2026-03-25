@@ -1,25 +1,4 @@
-
-name: method boreal
-
-age: not telling
-
-gender: not telling
-
-pronouns: not telling
-
-interests: not telling
-
-status: not telling
-
-I love: @supragcs @2meowkit @harouyama
-
-I hate: @germanstare @havocduo @zayninenine
-
-Credits for the yt video xal He made it when he was 6,
-
-![counter](https://komarev.com/ghpvc/?username=methodreal&color=red)
-
+ [**@germanstare**](https://github.com/germanstare)![](https://file.garden/Z38ClVn-8HS9WnBx/image.png)
 ![](https://files.catbox.moe/2uinem.png)
 ![](https://files.catbox.moe/zzln9o.png)
-![](https://files.catbox.moe/dedvj0.png)
-![](https://files.catbox.moe/brtvq7.png)
+
